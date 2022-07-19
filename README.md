@@ -22,6 +22,7 @@ Head over to https://patreon.com/llamacademy to show your support.
 
 ### Phenomenal Supporter Tier
 * Andrew Bowen
+* YOUR NAME HERE!
 
 ### Tremendous Supporter Tier
 * YOUR NAME HERE!
